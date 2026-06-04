@@ -1,4 +1,4 @@
-#  
+#  Experience creatures of sonaria like never before with creatures of sonaria stealth Script, the #1 Script. Includes undetectable and silent aim for
 
 
 
